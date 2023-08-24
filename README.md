@@ -1,1 +1,1 @@
-Arsenal will win the league this year
+Arsenal should win the league
